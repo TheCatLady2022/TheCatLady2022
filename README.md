@@ -1,16 +1,20 @@
-### Hi there 👋
+### Ayo! 👋
 
-<!--
-**TheCatLady2022/TheCatLady2022** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### What I do!
+-Write books 📖
+-Play Video Games 💻
+-Logic Puzzles 🧩
+-Make YouTube Videos 📸
 
-Here are some ideas to get you started:
+### What you don't want to do around me
+-Hurt someone 🔪
+-Say offensive things to others 😞
+-Swear 🤬
+-Not being on task 😴
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Things I hate
+-Cooked carrots 🥕
+-Bugs 🦟
+-Stairs 😰
+
+### That's TheCatLady! 𓆩♡𓆪
